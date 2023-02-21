@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Anand (@apacanand) based in Bangalore
+- 👋 Hi, I’m Anand Natarajan based in Bangalore
 - 🎯 Leading Channel business and partner service delivery for GitHub India
 - 👀 I’m interested in wellness, wildlife and neighbourhood volunteering
 - 🌱 I’m currently writing long format article(s) and improving yoga
